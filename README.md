@@ -1,0 +1,2 @@
+# Share.movilelegend.code.20-20jebekdjeishekebdoejeiejdndifjforjdidbdidhdidhdirhdjhdi
+HP lu mediatek
